@@ -32,3 +32,4 @@
 手袋
 PC(Let's note)
 予備ACケーブル(Let's note用)
+歯ブラシセット
